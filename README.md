@@ -1,7 +1,7 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://www.safersociety.com/new-subsidiary-and-new-software-for-online-investigations/gif-animation-hello/)
 <h1 align="center">Hi 👋, I'm Tejaswini Prakash Dindalakoppa</h1>
 <h3 align="center">A passionate full-Stack developer from India</h3>
-(img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/116207...")
+(img align="right" alt="Coding" width="400" src="https://graphicmama.com/animated-gif/funny-penguin-animated-gifs")
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tejaswini-prakash-dindalakoppa&label=Profile%20views&color=0e75b6&style=flat" alt="tejaswini-prakash-dindalakoppa" /> </p>
 
